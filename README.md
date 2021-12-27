@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LeonieSophiaHoek
+- 👋 Hi, I’m @LeonieSophia
 
 
 
